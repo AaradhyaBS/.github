@@ -26,9 +26,7 @@ From idea to execution, we combine creativity, technology, and teamwork to deliv
 
 **📧 Email:** [contact@aaradhyabs.in](mailto:contact@aaradhyabs.in)  
 **📞 Call:** 011-6931-1571  
-**📍 Visit:**  
-C-02, Sector-8B, Kamal-Vihar  
-Raipur, Chhattisgarh, 492001, India  
+**📍 Visit:**  C-02, Sector-8B, Kamal-Vihar, Raipur, Chhattisgarh, 492001, India  
 **🗺️ Directions:** [aaradhyabs.in/contact](https://www.aaradhyabs.in/contact/)
 
 ---
